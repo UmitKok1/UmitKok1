@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **umit.kok21@gmail.com**
 
-- 📄 Know about my experiences [will added.](will added.)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16ScM7FnykPMc4jIeBBXgT_0rn8W_NDaT/view?usp=sharing](https://drive.google.com/file/d/16ScM7FnykPMc4jIeBBXgT_0rn8W_NDaT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
